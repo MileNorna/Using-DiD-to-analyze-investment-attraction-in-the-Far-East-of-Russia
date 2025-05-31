@@ -15,4 +15,4 @@
 
 Контакты
 --------
-- [Telegram](https://t.me/mlmlplaa) - Милена Плякина
+- [Telegram](https://t.me/mlmlplplaa) - Милена Плякина
