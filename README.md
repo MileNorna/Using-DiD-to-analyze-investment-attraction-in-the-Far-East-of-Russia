@@ -15,4 +15,4 @@
 
 Контакты
 --------
-- [Telegram](https://t.me/mlmlplplaa) - Милена Плякина
+- [Telegram](https://t.me/mlmlplplaa) - Милена Плякина, автор исследования
